@@ -1,0 +1,2 @@
+# norgas
+medziotojas
